@@ -10,4 +10,6 @@ https://www.aliexpress.com/item/1005009516783759.html?spm=a2g0o.productlist.main
 https://www.aliexpress.com/item/1005009948548328.html
 https://www.aliexpress.com/item/1005008635271984.html
 https://littlebirdelectronics.com.au/products/mini-2-axis-analog-thumbstick
-https://www.aliexpress.com/item/1005007600971536.htm
+https://www.aliexpress.com/item/1005007600971536.html
+https://www.aliexpress.com/item/1005010099912504.html
+https://www.aliexpress.com/item/1005001423863921.html
